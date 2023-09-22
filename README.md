@@ -7,6 +7,8 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
   > Extremely stylistic essays on interesting internet related topics.
 - [Disrupt](https://www.youtube.com/@DisruptReality)
   > Essays on viruses, hacking, mysteries and philosophical questions (was involved in some controversy regarding selling their channel but that's been over for a while now)
+- [Dodford]
+  >
 - [EmpLemon](https://www.youtube.com/@EmperorLemon)
   > Essays on various topics such as mysteries, pop culture, sport (trust me they make it interesting) and video games.
 - [FUNKe](https://www.youtube.com/@FUNKe)
