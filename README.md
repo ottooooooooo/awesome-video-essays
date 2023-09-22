@@ -85,5 +85,13 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [FUNKe - Concept Albums (That I Like)](https://youtu.be/maqIaT_ZUxs?si=CMyjs3X-rCgHCFii)
 - [FUNKe - Self-Aware Game Mechanics - FUNKe Study](https://youtu.be/qs8XDWAuvEg?si=pljB-L7oFjmPJ8Yy)
 - [Junji Ito's Freaky Manga Endings - FUNKe Study](https://youtu.be/qh_7mnoWyGQ?si=mUF1ZVZPZVx_wArx)
-
+---
+- [AsumSaus - aMSa: The Only Yoshi (who could do it)](https://youtu.be/2WMBwFO65J4?si=R7cuI_LSeyffB-9w)
+- [AsumSaus - Marth's Huge Grab (and why it's completely fine)](https://youtu.be/OT3iBZm7mQ8?si=_tsh99P-UbTjg2iu)
+- [AsumSaus - Banned Controllers for Melee (Legal Ones too)](https://youtu.be/Lw1tcqbFwN4?si=gRMLMVG6wCaBGExg)
+- [AsumSaus - Melee's Stupid Advantages](https://youtu.be/rA8kpvTBh8Q?si=1lzj0Qv_rEUKP0O8)
+- [AsumSaus - The Worst Character in Melee](https://youtu.be/ALLLzprs1uo?si=pGqRcySqYTEGCEl2)
+- [AsumSaus - The Other Worst Character in Melee](https://youtu.be/EaOTldY_FqI?si=4NL_0tqdQ-lpWeUV)
+- [AsumSaus - Melee Has Changed.](https://youtu.be/H6Cq2R6RBEs?si=jVdJYO7I4xS5WWlV)
+---
 
