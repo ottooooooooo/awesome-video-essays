@@ -3,7 +3,7 @@
 A collection of some of my favourite Video Essay youtubers and videos from them, most are about gaming i'd say but all are equally fantastic with their editing and story telling, Enjoy.
 
 ## Channels
-- [BrandonFM](https://www.youtube.com/@BrandonFM)
+- [Brandon FM](https://www.youtube.com/@BrandonFM)
   > Extremely stylistic essays on interesting internet related topics
 - [Disrupt](https://www.youtube.com/@DisruptReality)
   > Essays on viruses, hacking, mysteries and philosophical questions (was involved in some controversy regarding selling their channel but that's been over for a while now)
@@ -40,4 +40,8 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [Ahoy](https://www.youtube.com/user/XboxAhoy)
   > High quality essays on technology, video games, firearms and retro gaming with his RetroAhoy series
 
-## Videos
+## Videos (in list order)
+- [Brandon FM - Japan's Most Disturbing Livestream](https://youtu.be/949-HGmpnRQ?si=v5oohtMBcIJXu0lT)
+- [Brandon FM - The $5,000,000,000 4Chan Troll](https://youtu.be/fQCIqyRlzUY?si=IXTf8_YQgY9io55N)
+- [Brandon FM - The $2,000,000 Steam Heist](https://youtu.be/YyF_A6xs9bw?si=s3RUdg_CDRjxdae1)
+
