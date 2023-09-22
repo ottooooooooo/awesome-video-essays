@@ -13,8 +13,8 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
   > Mostly video game related essays with some outliers such as their videos on concept albums and Junji Ito.
 - [Htwo](https://www.youtube.com/@htwo1)
   > Essays on video games and some comedic videos talking about negative steam reviews on well received games, most videos relate to Valve in some way.
-- [AsumSaus]
-  >
+- [AsumSaus](https://www.youtube.com/@AsumSaus)
+  >Great essays on video games, specifically the video game Super Smash Bros Melee and it's esports scene.
 - [Jacob Geller](https://www.youtube.com/@JacobGeller)
   > Amazing high quality video essays about video games, stories and myths. Mostly video game related though. 
 - [LEMMiNO](https://www.youtube.com/@LEMMiNO)
@@ -85,4 +85,5 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [FUNKe - Concept Albums (That I Like)](https://youtu.be/maqIaT_ZUxs?si=CMyjs3X-rCgHCFii)
 - [FUNKe - Self-Aware Game Mechanics - FUNKe Study](https://youtu.be/qs8XDWAuvEg?si=pljB-L7oFjmPJ8Yy)
 - [Junji Ito's Freaky Manga Endings - FUNKe Study](https://youtu.be/qh_7mnoWyGQ?si=mUF1ZVZPZVx_wArx)
+
 
