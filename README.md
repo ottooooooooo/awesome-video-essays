@@ -1,6 +1,6 @@
 # Awesome Video Essays
 
-A collection of some of my favourite Video Essay youtubers and video's from them, most are about gaming i'd say but all are equally fantastic with their editing and story telling, Enjoy.
+A collection of some of my favourite Video Essay youtubers and videos from them, most are about gaming i'd say but all are equally fantastic with their editing and story telling, Enjoy.
 
 ## Channels
 - [BrandonFM](https://www.youtube.com/@BrandonFM)
