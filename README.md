@@ -94,4 +94,20 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [AsumSaus - The Other Worst Character in Melee](https://youtu.be/EaOTldY_FqI?si=4NL_0tqdQ-lpWeUV)
 - [AsumSaus - Melee Has Changed.](https://youtu.be/H6Cq2R6RBEs?si=jVdJYO7I4xS5WWlV)
 ---
+- [Jacob Geller - Fear of Depths](https://youtu.be/7MOKTU9tCbw?si=zgi8HI2hq8pjpMdH)
+- [Jacob Geller - Fear of Cold](https://youtu.be/Pp2wbyLoEtM?si=y1utsUhtdnHc3PPI)
+- [Jacob Geller - Fear of Big Things Underwater](https://youtu.be/ZOEaUD82GlI?si=0mxM_aUD9gGnbV12)
+- [Jacob Geller - Returnal is a Hell of Our Own Creation](https://youtu.be/fimmD9EtVd0?si=KGhX2lh-J62KX6nO)
+- [Jacob Geller - Every Zelda is the Darkest Zelda](https://youtu.be/O2tXLsEUpaQ?si=2SGnojugmaPD29-r)
+- [Jacob Geller - Games that Don't Fake the Space](https://youtu.be/Q85l1Fenc5w?si=wV1pAhK737kBs8OW)
+- [Jacob Geller - Perfect Moments in "Bad" Movies](https://youtu.be/h5Y8whMzlwo?si=L6trrWr-7rIIjHcG)
+- [Jacob Geller - We're Not Remaking Horror Games, We're Chasing Nightmares](https://youtu.be/V8Hs8_DzU3M?si=UpGOp5UzTo5Bp4oq)
+- [Jacob Geller - The False Evolution of Execution Methods](https://youtu.be/eirR4FHY2YY?si=FII-6eRNMrCvOvMD)
+- [Jacob Geller - The Best Simpsons Intro Is About Losing Everything You Love](https://youtu.be/1f5Xt5pZZZM?si=HTc_wAAY2oPgwQa4)
+- [Jacob Geller - The Game That Won’t Let You See All Of It](https://youtu.be/LTI1WCopTsg?si=7AuaYJY11QC1zY5P)
+- [Jacob Geller - Games that Aren't Games](https://youtu.be/DliX_YFiSX4?si=BrYC_ltPSXyFcnLn)
+- [Jacob Geller - Gross Games about Flesh and Stuff](https://youtu.be/Rg4icEb97RY?si=OGHjW4Vn2XxBznBI)
+- [Jacob Geller - Four Short Games About Pain](https://youtu.be/BgpvZVsfiVM?si=gI3rAW-0jVA3Qn3M)
+- [Jacob Geller - Games That Save the Best for Last](https://youtu.be/Q8n2DHiGp8E?si=riLof7ZXXjbJSahx)
+---
 
