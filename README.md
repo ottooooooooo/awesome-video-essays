@@ -48,7 +48,7 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [Brandon FM - Japan's Most Disturbing Livestream](https://youtu.be/949-HGmpnRQ?si=v5oohtMBcIJXu0lT)
 - [Brandon FM - The $5,000,000,000 4Chan Troll](https://youtu.be/fQCIqyRlzUY?si=IXTf8_YQgY9io55N)
 - [Brandon FM - The $2,000,000 Steam Heist](https://youtu.be/YyF_A6xs9bw?si=s3RUdg_CDRjxdae1)
-
+---
 - [Disrupt - LULZSEC: The Internet's Deadliest Trolls](https://youtu.be/4JChLsD3zxQ?si=p0Doj2AJLaj72dDr)
 - [Disrupt - The $35,000,000 Sony Hacker](https://youtu.be/I1xjCMqqrgY?si=9nLnTPn1hnnszXec)
 - [Disrupt - Earth's Most Wanted Hacker](https://youtu.be/PlbUYl67LTY?si=AmqVRyl5wufEYGSV)
