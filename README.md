@@ -277,3 +277,22 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [Unpredictable - A Double Disappearance, documented by its victims.](https://youtu.be/U_1bKOeKd70?si=ZI2nTXOS3a5r_7zi)
 - [Unpredictable - Why do People Love this Serial Killer?](https://youtu.be/CM4kZ3mCvQI?si=39nc4cgHpsK_prbT)
 ---
+- [Ahoy - RetroAhoy: Doom](https://youtu.be/6A4-SVUHQYI?si=WxBruBFA95gPYnwO)
+- [Ahoy - Four-Byte Burger](https://youtu.be/i4EFkspO5p4?si=Qqwk45CkEcUMyh-y)
+- [Ahoy - POLYBIUS - The Video Game That Doesn't Exist](https://youtu.be/_7X6Yeydgyg?si=8lIpG9EOb-MwpEad)
+- [Ahoy - The First Video Game](https://youtu.be/uHQ4WCU1WQc?si=j9iSsL8E7yh-1elA)
+- [Ahoy - Trackers: The Sound of 16-Bit](https://youtu.be/roBkg-iPrbw?si=avSRmbB-UbNnKF6L)
+- [Ahoy - RetroAhoy: X-COM](https://youtu.be/gBu77h2FSCM?si=kr5EZoF8Q6SZYo0O)
+- [Ahoy - A Brief History of Graphics](https://youtu.be/QyjyWUrHsFc?si=OniqwOvm5kzW_HAz)
+- [Ahoy - RetroAhoy: Half-Life](https://youtu.be/bp5vOgz8vyI?si=8WPJH87eKjhpw_HM)
+- [Ahoy - RetroAhoy: Quake](https://youtu.be/OipJYWhMi3k?si=wsJ6YL5bxDldBscD)
+- [Ahoy - RetroAhoy: Wolfenstein 3D](https://youtu.be/BSb87DC-PtA?si=nqZtmUl4xOBiizr2)
+- [Ahoy - Nuclear Fruit: How the Cold War Shaped Video Games](https://youtu.be/15dxuAbTC0A?si=mckXFUnWvuTEQwfs)
+- [Ahoy - RetroAhoy: The Secret of Monkey Island](https://youtu.be/9F9ahZQ7oP0?si=77ERk-9yn38nPVTB)
+- [Ahoy - Big Boxes](https://youtu.be/sWLMbmAv0tg?si=38qIEjP2s0y_Rk3k)
+- [Ahoy - A Brief History of Gore](https://youtu.be/NRXigbgqtOc?si=Avj6BGAhtdYVp979)
+---
+
+# Afterword
+
+Thank you for reading my list! This has taken hours and I'm sleep deprived but it's worth it if atleast one person finds an amazing content creator from this. I'll be making a playlist of every video at some point and there will be more people to add in the future so stay tuned! Byeeeeee.
