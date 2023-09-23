@@ -44,8 +44,6 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
   > High quality longform video essays about video games and internet culture with some meme elements, formally made videos on internet drama.
 - [Unpredictable](https://www.youtube.com/@unpred.ictable)
   > Great essays on True Crime, run by siblings.
-- [Raycevick](https://www.youtube.com/channel/UC1JTQBa5QxZCpXrFSkMxmPw)
-  > High quality essays on video games and video game retrospectives.
 - [Ahoy](https://www.youtube.com/user/XboxAhoy)
   > High quality essays on technology, video games, firearms and retro gaming with his RetroAhoy series.
 
@@ -259,4 +257,23 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [The Cursed Judge - Games with floating worlds.](https://youtu.be/Bgh5ZnHREk4?si=M3EzhWuRgEsfsAWS)
 - [The Cursed Judge - What it's Like to Explore a Game Blind - The Indigo Parallel](https://youtu.be/eKgci2ibISk?si=HE1HSkdRUnn1RHmF)
 - [The Cursed Judge - Games about BALLS.](https://youtu.be/5vwUq7PHbZg?si=nX6KaGEYkoXc-dH1)
+---
+- [Pyrocynical - The best (and worst) show you haven't seen](https://youtu.be/PFx2QM0Z8Qo?si=CPRPWWGVOCqJQYoT)
+- [Pyrocynical - Petscop: The Best Game You've Never Played](https://youtu.be/HbfnCMhN_zw?si=FHeUHbjXYEZ2aWXe)
+- [Pyrocynical - Cruelty Squad](https://youtu.be/51o5J0XVGoc?si=X0jxJzqZPyfDvdsk)
+- [Pyrocynical - Do Not Use This File](https://youtu.be/EbxoDbcoZs4?si=tTYO8HtMwYNjGIGJ)
+- [Pyrocynical - Cry of Fear - The Best Free Game You Never Played](https://youtu.be/nTpCsKOzoCE?si=sIdt0VixH8_lYcuK)
+- [Pyrocynical - The Second Best Free Game You Never Played](https://youtu.be/CXJHt7r7n7c?si=OwwB9XEWKtaeBL9g)
+- [Pyrocynical - Why Iron Lung Is The Scariest Game Ever Made](https://youtu.be/Ctn8uuvYKIs?si=QmRFzdaO7Gsr2aEG)
+- [Pyrocynical - The Best Game You Should NOT Play](https://youtu.be/vA5t1373hEo?si=WzKKNG1BchjppYZ)
+---
+- [Unpredictable - Jonestown Massacre, explained.](https://youtu.be/YNHQJuYj47A?si=xFfV-lNjL0npf68g)
+- [Unpredictable - How a Millionaire Father Murdered his Whole Family](https://youtu.be/uldnUrDlxU0?si=IUwUFl6Rb0XJGfLH)
+- [Unpredictable - Japan's Most Dangerous Cult, explained.](https://youtu.be/n9VZhXbKdTU?si=VHjXzNCguHhmZ1SN)
+- [Unpredictable - Zodiac Killer, explained.](https://youtu.be/QqMWQZS5Q8E?si=k7OCmfQSon3j5apz)
+- [Unpredictable - People Who Faked Their Deaths](https://youtu.be/aaoygCN3U6g?si=JvYmBlM08iPY9rAK)
+- [Unpredictable - The Björk Stalker Tapes, explained.](https://youtu.be/5EKneVDObtc?si=nB41Qzqazjyh8ZjC)
+- [Unpredictable - Trapped Upside Down for 28 hours](https://youtu.be/E1kMTD_NiBo?si=22psE4ppaxpqP3C-)
+- [Unpredictable - A Double Disappearance, documented by its victims.](https://youtu.be/U_1bKOeKd70?si=ZI2nTXOS3a5r_7zi)
+- [Unpredictable - Why do People Love this Serial Killer?](https://youtu.be/CM4kZ3mCvQI?si=39nc4cgHpsK_prbT)
 ---
