@@ -137,4 +137,25 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [Jacob Geller - Four Short Games About Pain](https://youtu.be/BgpvZVsfiVM?si=gI3rAW-0jVA3Qn3M)
 - [Jacob Geller - Games That Save the Best for Last](https://youtu.be/Q8n2DHiGp8E?si=riLof7ZXXjbJSahx)
 ---
+- [LEMMiNO - Cicada 3301: An Internet Mystery](https://youtu.be/I2O7blSSzpI?si=x35wUZPKVMeJdY1O)
+- [LEMMiNO - The Universal S](https://youtu.be/RQdxHi4_Pvc?si=0k6hT5abzZEUHaHc)
+- [LEMMiNO - The Vanishing of Flight 370](https://youtu.be/kd2KEHvK-q8?si=EM2YzKjI0JKq30FN)
+- [LEMMiNO - The Search For D. B. Cooper](https://youtu.be/CbUjuwhQPKs?si=yO_hqELIOCijhbi5)
+- [LEMMiNO - The Enduring Mystery of Jack the Ripper](https://youtu.be/lADBHDg-JtA?si=m8JyCcS48UOPIZhq)
+- [LEMMiNO - Bygone Visions of Cosmic Neighbors](https://youtu.be/LhfCietvDZo?si=vqQ3t0VgA5SZGDT7)
+- [LEMMiNO - The Kennedy Assassination: Inside the Book Depository](https://youtu.be/5u7euN1HTuU?si=uiLMJjQ2UUrMoVZN)
+- [LEMMiNO - The Great Silence](https://youtu.be/ryg077wBvsM?si=eRCnq1criHkn-ZrF)
+---
+- [Super Eyepatch Wolf - Chainsaw Man is a God Damn Masterpiece](https://youtu.be/8W2m7fW5j5k?si=_2KD0eC1JbpCNaRL)
+- [Super Eyepatch Wolf - What The Internet Did To Garfield](https://youtu.be/O2C5R3FOWdE?si=VNVng5gL0JXDuxVV)
+- [Super Eyepatch Wolf - What The Internet did To Undertale](https://youtu.be/FFIs6LsV0a4?si=a307mIPOdXhQYjLz)
+- [Super Eyepatch Wolf - The Manga That Breaks People](https://youtu.be/hVYzc2Xpup0?si=WHH0VuBiGPX0vqZN)
+- [Super Eyepatch Wolf - Why Perfect Blue is Terrifying](https://youtu.be/MJmK5SOeQBc?si=FURoTCxCJwWF0eDT)
+- [Super Eyepatch Wolf - Horror in Impossible Places: Liminal Spaces and The Backrooms](https://youtu.be/gp-2M_3HwFU?si=UWb9TDrOOZFHM8Qp)
+- [Super Eyepatch Wolf - Why You Should Watch Disturbing Horror Movies](https://youtu.be/m_oeMV2E50A?si=zWh8ApLjnCbmeCOT)
+- [Super Eyepatch Wolf - Buying a PC With Dell: My Journey Into Hell](https://youtu.be/MR25BVBsuS0?si=AIJOma8GT-X3sgNJ)
+- [Super Eyepatch Wolf - The Bizarre Modern Reality of Sonic the Hedgehog](https://youtu.be/JR9F2Z7zSbA?si=FSAhg7Ybbipy_ClV)
+- [Super Eyepatch Wolf - The Bizarre Modern Reality of The Simpsons](https://youtu.be/8er83V2OJ1o?si=scSD7pNOqNvI0mO0)
+- [Super Eyepatch Wolf - The Impact of Akira: The Film that Changed Everything](https://youtu.be/IqVoEpRIaKg?si=59YqOHxySCL-gx5S)
+---
 
