@@ -196,8 +196,8 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [n3rdiness - osu!'s Most Obscure Achievement](https://youtu.be/vy9yi0fUgnk?si=_XYjRq4KhYcGL33B)
 - [n3rdiness - osu!'s Hardest Achievement](https://youtu.be/mgOcopGsCk8?si=qhlgttjyOLhWiemT)
 - [n3rdiness - This Keyboard is Breaking the osu! Community...](https://youtu.be/Z-zKCRzuhUk?si=t2KQdKV9hJFTpXeI)
-- [n3rdiness - [How Neuro-sama Took Over Twitch and osu! (feat. Vedal987)](https://youtu.be/o-ZEjr9J1Es?si=ztwPtIHwJMMePbQ7)
-- [n3rdiness - [[osu!] The History of United](https://youtu.be/_Z363pU4m_4?si=FAoIDr5w4Hsipo8J)
+- [n3rdiness - How Neuro-sama Took Over Twitch and osu! (feat. Vedal987)](https://youtu.be/o-ZEjr9J1Es?si=ztwPtIHwJMMePbQ7)
+- [n3rdiness - osu! The History of United](https://youtu.be/_Z363pU4m_4?si=FAoIDr5w4Hsipo8J)
 ---
 - [Noodle - Adaptive Music (In Gaming) Is Amazing](https://youtu.be/yLd5wmBNCBM?si=RGmMX-98gTWFUeC8)
 - [Noodle - 𝐇𝐀𝐂𝐊𝐄𝐑𝐒 - A very good (bad) 90s film](https://youtu.be/i-HXbkoEaDE?si=UUGMzmt26ndkPjo0)
