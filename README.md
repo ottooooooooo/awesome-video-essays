@@ -63,6 +63,16 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
 - [Disrupt - MORRIS: Earth's First Computer Worm](https://youtu.be/7BRTixIDzzE?si=RQMt3uCi2Aig88ZW)
 - [Disrupt - The $600,000,000 Art Heist](https://youtu.be/QnYRBaxF04M?si=lfAbMtjlgOK9FOvC)
 ---
+- [Dodford - The Many Faces of Donald Glover](https://youtu.be/k2mwG2h2zVQ?si=Xj2YxDHj3huSkdUV)
+- [Dodford - Nardwuar: A Misunderstood Superstar](https://youtu.be/Jk6_B5pibt8?si=1fAp_GOYkFFWpO6n)
+- [Dodford - Steven Spielberg’s Living Hell: Two Films, One Year](https://youtu.be/diES3cFBG6Q?si=jSzSKkOvHbbMj5ok)
+- [Dodford - The Inspiring Comeback of Drew Barrymore](https://youtu.be/ONlM10impXE?si=dyshF4ylCk5kwK8y)
+- [Dodford - The Keanu Reeves Enigma](https://youtu.be/69qWVJwX7wk?si=B--PlsXFIGV6ABmI)
+- [Dodford - The Adam Sandler Paradox](https://youtu.be/Ju6Yj5QvIjY?si=i-QY3E07zWkLyfBU)
+- [Dodford - The Redemption of Robert Downey, Jr.](https://youtu.be/ovt9mV69pVg?si=qgNpq08qFM4mbjdZ)
+- [Dodford - What's The Deal With Jerry Seinfeld?](https://youtu.be/npiNQ6t9yc0?si=59WF4noJD8Y9lfa4)
+- [Dodford - Hot Ones: Every Celeb's Favourite Interview Show](https://youtu.be/76V0hNeZZio?si=ZXnyXT9W7oowAiDw)
+---
 - [EmpLemon - Mac Tonight](https://youtu.be/Jp35RSGt_Dg?si=w_BkO2ybezgdhgR7)
 - [EmpLemon - New Coke](https://youtu.be/PUKfmMH157U?si=LncuGyr6pPqHaevZ)
 - [EmpLemon - Art of the Choke](https://youtu.be/0Si5njM3yHI?si=M7nw-2bpvMLPxibd)
