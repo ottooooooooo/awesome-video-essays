@@ -1,7 +1,15 @@
+
 # Awesome Video Essays
 [![Awesome](https://awesome.re/badge.svg)](https://awesome.re)
 
 A collection of some of my favourite Video Essay youtubers and videos from them, most are about gaming i'd say but all are equally fantastic with their editing and story telling, I enjoy every one of these channels and I hope you do too, Enjoy.
+
+# Table of Contents!
+- [Awesome Video Essays](#awesome-video-essays)
+- [Table of Contents!](#table-of-contents)
+  - [Channels](#channels)
+  - [Videos (in list order)](#videos-in-list-order)
+- [Afterword](#afterword)
 
 ## Channels
 - [Brandon FM](https://www.youtube.com/@BrandonFM)
