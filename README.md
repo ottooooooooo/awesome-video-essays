@@ -46,6 +46,8 @@ A collection of some of my favourite Video Essay youtubers and videos from them,
   > High quality essays on technology and software.
 - [steinful](https://www.youtube.com/@steinful)
   > Extremely high quality essays on music, internet mysteries and TV/Pop Culture, heavily inspired by adult swim.
+- [LowercaseJai](https://www.youtube.com/@LowercaseJai)
+  > High quality video essays from an extremely underrated channel
 - [The Cursed Judge](https://www.youtube.com/@TheCursedJudge)
   > Interesting essays on video games but some on TV, meme culture and the existentialism of video games.
 - [Pyrocynical](https://www.youtube.com/@Pyrocynical)
